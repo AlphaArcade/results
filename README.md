@@ -1,1 +1,1 @@
-Search results for [YouArcade](glitchninja2000.github.io/youarcade)
+Search results for [AlphaArcade](alphaarcade.github.io)
